@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Marymelkady
 - 👀 I’m interested in STEM
-- 🌱 I’m currently learning Advanced level of junior High school diploma
+- 🌱 I’m currently learning Advanced level of High school diploma
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
